@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @krowemoealt
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on dub
+- 📫 How to reach me discord.gg/dub
